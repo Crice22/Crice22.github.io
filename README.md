@@ -1,1 +1,1 @@
-# Resume of FUjiao Ji 
+# Resume of Fujiao Ji 
